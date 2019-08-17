@@ -1,3 +1,0 @@
-# sturdy-engine
-0000
-Nothing to read here, yet...
